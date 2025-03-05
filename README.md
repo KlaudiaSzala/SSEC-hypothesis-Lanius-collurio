@@ -5,6 +5,7 @@ Szala K., Tobolka M. & Surmacki A. (2025) Eggshell coloration is related to cond
 Paper DOI:
 
 Prepared by: K. Szala
+
 Last updated: 2025-03-05
 
 ===================================================================================================
